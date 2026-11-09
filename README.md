@@ -1,4 +1,4 @@
-# Hi, I'm Abdalla Badreldin 👋
+# Hi, I'm Abdalla Basbar 👋
 
 **Data Analyst** | Sales & Retail Analytics
 
